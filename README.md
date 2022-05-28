@@ -5,3 +5,7 @@
 ![ungkot](https://user-images.githubusercontent.com/96562917/170834835-e2025c86-9663-4f29-9e57-f1ec746ef7a0.jpg)
 ![itoy](https://user-images.githubusercontent.com/96562917/170834906-f505055e-317c-4e15-8e0c-7c10eb2bb46e.jpg)
 ![wing](https://user-images.githubusercontent.com/96562917/170834912-89ad96cc-efee-4ffb-a0bb-e9623e9ad359.jpg)
+![activities](https://user-images.githubusercontent.com/96562917/170835058-ab397aa7-1f00-4d09-a7ec-469b3d3f479a.jpg)
+![food](https://user-images.githubusercontent.com/96562917/170835074-544807b9-b3ed-4e94-bdcd-28a49f330f4a.jpg)
+![restaurants](https://user-images.githubusercontent.com/96562917/170835086-5b56cdfd-b280-41f8-a5b7-882ddfb24b08.jpg)
+![seaside](https://user-images.githubusercontent.com/96562917/170835096-e957c16e-b937-41fa-811b-26d3738d30d4.jpg)
